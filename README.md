@@ -13,6 +13,6 @@ I'm Balinese Web and sofware artisan from Indonesia. I will continue to learn mo
 - Vocational High School at IT VHS Bali Global Denpasar (SMK TI Bali Global Denpasar, 2018-2021).
 
 # Contact :
-+62 881 4736 557
-Waturenggong St. 4th Alleyway 09, Denpasar, Bali, Indonesia
-(Jl. Waturenggong Gg. IV no. 9)
+- +62 881 4736 557
+- Waturenggong St. 4th Alleyway 09, Denpasar, Bali, Indonesia
+  (Jl. Waturenggong Gg. IV no. 9)
